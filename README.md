@@ -1,0 +1,4 @@
+- 😘🤩 HeyI’m @balls /j /j /j / k  k cvbioj[fgtyhimbtvyned-=rf
+- 💀 I’m interested in Pony Town
+- 🐱💻 I’m currently learning how to shade colors in game
+- 😐 How to reach me? YOU CANT IDIOT C:
